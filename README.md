@@ -1,1 +1,1 @@
-Erdem is a software development student, 1/4 rn.
+Erdem is a software development student, 2/4 rn.
